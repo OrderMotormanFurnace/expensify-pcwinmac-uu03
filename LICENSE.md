@@ -1,4 +1,4 @@
-# 
+# Professionnel Expensify modèles pour Mac OS | Exclusif Expensify modèles pour PC Windows. Avec applications mobiles et outils de budget — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
